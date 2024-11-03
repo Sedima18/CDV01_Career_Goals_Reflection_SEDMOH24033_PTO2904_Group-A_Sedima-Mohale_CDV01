@@ -52,8 +52,7 @@
     tpo changes in thework environment.
 
     Loyalty
-    A highly-valued trait that emoplyees to think outside the 
-    box and come up with new ideas.
+    A highly-valued trait that emoplyers look for  because it helps employees to stay longer.
 
 
 
